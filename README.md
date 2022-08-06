@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @trashw1n
 - 👀 I’m interested in anything STEM
-reach me on insta: @ashwin._.__ ; email: ashwinjain101010@gmail.com
+email: ashwinjain101010@gmail.com
 
 <!---
 trashw1n/trashw1n is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
